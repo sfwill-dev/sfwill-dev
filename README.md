@@ -1,6 +1,6 @@
 # 👋 Hi there
 
-Hi there! I'm Willian. Brazilian, married and dad of a little girl. ❤️
+I'm Willian. Brazilian, married and dad of a little girl. ❤️
 
 A technology professional with over 14 years of experience, who loves solving problems and communicating with people.
 
