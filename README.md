@@ -4,7 +4,7 @@ I'm Willian. Brazilian, married and dad of a little girl. ❤️
 
 A technology professional with over 14 years of experience, who loves solving problems and communicating with people, and currently works as a Cloud TAM at AWS (Amazon Web Services).
 
-I consider myself being generalist (which can also be viewed as t-shaped or multipotentialite), and have worked in areas such as Software Development, Enterprise Customer Support, and Technical Consulting.
+I consider myself being generalist (which can also be viewed as t-shaped or multipotentialite), and have worked in areas such as Software Development, Enterprise Customer Support, and Technical Guidance.
 
 Also, I am passionate about learning languages in a fun way (input-based, mostly by watching videos and series), currently speak three languages and intend to become a polyglot in the near future.
 
