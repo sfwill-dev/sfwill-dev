@@ -2,7 +2,7 @@
 
 I'm Willian. Brazilian, married and dad of a little girl. ❤️
 
-A technology professional with over 14 years of experience, who loves solving problems and communicating with people, currently working as an Enterprise Account Engineer at AWS (Amazon Web Services).
+A technology professional with over 14 years of experience, who loves solving problems and communicating with people, currently working as a Cloud TAM at Amazon (AWS).
 
 I consider myself being generalist (which can also be viewed as t-shaped or multipotentialite), and have worked in activities such as Software Development, Enterprise Customer Support, and Technical Guidance.
 
