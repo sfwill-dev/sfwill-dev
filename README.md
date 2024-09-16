@@ -1,6 +1,6 @@
 # 👋 Hi there
 
-I'm a generalist technology professional with over 14 years of experience, currently working at AWS Enterprise Support.
+I'm a generalist technology professional with over 14 years of experience, currently working at AWS, in the Enterprise Support org.
 
 Outside of work, I like having fun with my wife and daughter, and also enjoy learning foreign languages on my own, mostly with movies and series.
 
